@@ -1,6 +1,5 @@
 ### Hi there NLP and AI Family 👋
 
-
 We are a group of passionate scholars, enthusiast, experienced professionals who saw the need of spreading the knowledge through education and sharing resources!
 
 Here is more about us:
